@@ -1,8 +1,8 @@
 <br>
 
-# **Bringing Genomics to Naturalists**
+# **Genomics for Naturalists**
 
-### **Democratizing access to sequencing, modern breeding techniques and natural product discovery will allow people worldwide to engage with nature in new ways.**
+### **I aspire to contribute to the growing access of sequencing, modern breeding techniques and natural product discovery for laymen.**
 <br>
 
 ## **PORTFOLIO**
